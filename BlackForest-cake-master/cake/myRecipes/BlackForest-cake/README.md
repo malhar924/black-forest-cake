@@ -1,0 +1,1 @@
+Black Forest cake has multiple (usually 4) layers of chocolate sponge cake, cherries, and whipped cream. It is frosted with whipped cream and covered with chocolate shavings and a few cherries for decoration. ... Called Schwarzwälder Kirschtorte in German, which means Black Forest Cherry Torte
